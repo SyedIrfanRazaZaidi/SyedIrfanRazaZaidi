@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Irfan Raza
-**Undergraduate Computer & Information System Engineering || Academic Instructor || Student Counsellor**
+**Undergraduate Computer & Information System Engineering @ NEDUET || Academic Instructor || Student Counsellor**
 
 Email Me 👉 ✉️ **irfanrazazaidi0@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
